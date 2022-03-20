@@ -1,0 +1,3 @@
+- Read about this index in the book called "Price Wars"
+- it said when the index reach the peak, it is more likely to have more social movement in countries due to the extreme high food price
+- and right now we need to look at the inflation pressure at the moment
